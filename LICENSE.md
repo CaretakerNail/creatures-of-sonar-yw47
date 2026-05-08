@@ -1,4 +1,4 @@
-
+creatures of sonaria Scripts smart is the best creatures of sonaria Script, featuring unlimited stamina and infinite resources. Safe and powerful for
 
 
 
